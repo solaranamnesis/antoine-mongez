@@ -2,6 +2,8 @@
 
 ## Par le citoyen Mongez.
 
+### 1800.
+
 Lu en fructidor an 9.
 
 Il paroît que le chanvre n'étoit pas connu des Grecs, ou du moins qu'ils l'employoient peu au temps où Homère écrivoit. On ne trouve le nom de ce végétal dans aucun des poëmes d'Hésiode ni dans ceux du chantre d'Achille. Celui-ci au contraire parle souvent du lin et de cuirasses de lin. C'étoit dans une toile de lin qu'Ulysse dormoit enveloppé lorsque les Phéaciens le déposèrent sur les bords d'Ithaque, auprès de l'antre des nymphes. (Odyss. lib. 13, v. 117.)
