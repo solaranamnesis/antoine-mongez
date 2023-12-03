@@ -2,7 +2,7 @@
 
 ## Par le citoyen Mongez.
 
-### 1800.
+### Août, 1800.
 
 Lu en fructidor an 9.
 
